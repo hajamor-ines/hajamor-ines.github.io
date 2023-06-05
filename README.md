@@ -1,1 +1,0 @@
-# hajamor-ines.github.io
